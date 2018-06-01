@@ -1,3 +1,3 @@
 # DroppyBirds
 
-![droppy-birds](https://imgur.com/a/QVzrvg9)
+![droppy-birds](https://preview.ibb.co/mi6vLy/Screenshot_20170828_222032.png)
